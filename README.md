@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Kristian Samuel Widya Pratama
 - 👀 I’m interested in Music, Sport, and Coding
 - 🌱 I’m currently learning HTML, CSS, And Java Script.
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on Someone who can teach me more about Coding:)
 - 📫 How to reach me at ellowawa@gmail.com or you can DM my IG at :@kristianswp
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm a student at Ragunan Sport School in Jakarta,
